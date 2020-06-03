@@ -1,1 +1,1 @@
-# -Hotel-FOODLAND
+# Hotel-FOODLAND
