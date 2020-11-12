@@ -8,3 +8,4 @@ b. In the 1st month he was selling veg food also, but he stopped after the 2nd m
 c. After 4 – 5 months down the line the man is making a huge loss in his investment. He has a due of 2 months to pay the rent.
 d. The sale has drastically gone down and he is thinking to close the shop.
 e. The Man is very lazy in working hard and also very poor in any other investment.
+How will you tackle a situation of this kind?
